@@ -1,1 +1,0 @@
-# gokberkuruk.github.io
